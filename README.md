@@ -1,5 +1,5 @@
 - 👋 Boo! I'm Eliyuh, but you can call me Ellie
-- 📫 How to reach me: Discord mainly (eliyuh.shafer)
+- 📫 How to reach me: Discord mainly (jelliefish22)
 - 😄 Pronouns: She/they
 
 <!---
